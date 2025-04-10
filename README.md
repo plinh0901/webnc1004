@@ -1,2 +1,2 @@
-# Họ và tên : Lê Thái Nam
-### MSV: 22810310397
+# Họ và tên : Lại Thị Phương Linh
+### MSV: 22810340364
